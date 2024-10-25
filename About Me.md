@@ -3,6 +3,7 @@
 - 👀 I’m a Freshgraduate who had a strong foundation in data analyatics.
 - 🌱 I’m currently looking for Dataanalyst role
 - 📫 arunsinfo2024@gmail.com
+- 😁 lets Stay connected through  [linkedin](www.linkedin.com/in/arun1542)
 
 
 <!---
